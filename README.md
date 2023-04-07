@@ -1,1 +1,1 @@
-![readme-solo-cat](https://user-images.githubusercontent.com/83701344/230401212-c82bd42c-bdbf-4046-ab3f-e53830a3fa90.svg)
+![readme-solo-cat](https://user-images.githubusercontent.com/83701344/230585934-9cc86e7c-baa6-402b-a274-88fc328acd72.svg)
