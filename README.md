@@ -1,1 +1,1 @@
-![readme-solo-cat](https://github.com/salluthdev/salluthdev/assets/83701344/14461620-f732-4478-8bf5-f0b0432be3b3)
+![readmebox](https://github.com/salluthdev/salluthdev/assets/83701344/542dffc5-253c-427b-af1f-2a8355c28f26)
